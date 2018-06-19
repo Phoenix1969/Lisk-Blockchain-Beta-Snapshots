@@ -1,0 +1,1 @@
+# Lisk-Blockchain-Beta-Snapshots
